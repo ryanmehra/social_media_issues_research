@@ -1,4 +1,4 @@
-<!-- # Undoing the Damage: Holistic Paths to Correcting Social Media-Induced Spinal Health Issues and Mental Well-Being -->
+# Undoing the Damage: Holistic Paths to Correcting Social Media-Induced Spinal Health Issues and Mental Well-Being
 
 License: Creative Commons (CC BY 4.0)
 
